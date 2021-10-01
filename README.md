@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @v-anjali
 - 👀 I’m interested in BTS (tbh😌)
 - 🌱 I’m currently in BTech First year!
+- 💜 So much to learn & so much to contribute! 
 
 
 
